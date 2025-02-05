@@ -1,2 +1,2 @@
 # WEB-JONE
-Welcome to my (WEB-JONE) profile:
+Welcome to my (WEB-JONE) profile !
